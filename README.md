@@ -1,5 +1,5 @@
 # 💫 About Me:
-You are looking page of CYBERPOLIS's TECH LEAD
+You are looking the page of CYBERPOLIS's TECH LEAD
 
 
 ## 🌐 Socials:
